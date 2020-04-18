@@ -1,1 +1,2 @@
-Hey PEStouch dev.md!
+Hey PES sosat lejat
+some update
